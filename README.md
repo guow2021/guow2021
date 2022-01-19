@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @guow2021
+- 👀 I’m interested in table tennis, badminton, Chinese chess.
+- 🌱 I’m currently learning accounting major and CET-6
+- 💞️ I’m looking to collaborate on all kinds of projects in the company
+- 📫 How to reach me: wei.guo@moodys.com
